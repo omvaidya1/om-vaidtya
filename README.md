@@ -1,1 +1,1 @@
-# om-vaidtya
+# om-vaidya
